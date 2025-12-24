@@ -1,1 +1,1 @@
-“I collect church collapses, recreationally. Did you see the recent one in Sicily? Marvelous! The facade fell on sixty-five grandmothers at a special mass. Was that evil? If so, who did it? If he's up there, he just loves it, Officer Starling. Typhoid and swans - it all comes from the same place.”
+☣︎
